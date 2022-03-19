@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FxiWilil
 - 👀 I’m interested in playing computer games(Such as Terraria and Minecraft)
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning about "how to make more money"
 - 💞️ I’m looking to collaborate on ...
 - 📫 wuzhili5200@outlook.com (My E-mail)✔
 
